@@ -1,3 +1,2 @@
-# Yoni Houdayer
-Théo jouves
+# Yoni Houdayer & Théo jouves
 YDJT
